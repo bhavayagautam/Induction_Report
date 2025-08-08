@@ -39,3 +39,15 @@ Day- 05 was basically just for I- card formation of my section, CSEA. Since my r
 #### *11:30 to 12:30* **I̲D̲ ̲C̲a̲r̲d̲ ̲F̲o̲r̲m̲a̲t̲i̲o̲n̲**
 It was a task of just 10-15 minutes. When I went in, there were just last 6 -7 students remaining.
 
+### Day- 06
+#### *9:30 am to 10:30 am* **C̲h̲e̲m̲i̲s̲t̲r̲y̲ ̲L̲e̲c̲t̲u̲r̲e̲**
+I finally got to be introduced to Mr. Karan Bhalla, my Chemistry professor who seemed to be a really kind and loving teacher. The way he motivated the students and guided them as if they were his own, really got to me. He asked students to introduce themselves after he introduced himself. He asked some basic questions from the students and even if some replied with an error, he took it to a positive note and encouraged them more until they finally get the real answer out of their mouth. One could easily tell that such types of teachers who support their students are whom the students confide in and adore. He explained the exam structure and later on took to teaching some basic topics of the first chapter, 'Water Chemistry'. 
+
+#### *10:30 am to 11:30 am* **E̲n̲g̲l̲i̲s̲h̲ ̲L̲e̲c̲t̲u̲r̲e̲**
+The next lecture was assigned to Mrs. Nisha, my English teacher I got to meet for the first time. She came in and introduced herself before taking the introduction of other students. She asked them to introduce themselves only in English so as to boost the confidence in the same language. Since many students got nervous or couldn't find the words to express themselves, it took a long time and some students didn't get the chance to introduce themselves and I was one of them.
+
+#### 
+Attended the lectures in auditorium.
+
+### Day- 06
+#### 
