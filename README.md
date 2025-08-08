@@ -31,3 +31,11 @@ Witnessing poor time control twice in a day, I understood that I would have to p
 After the session was over, we were asked to write a repository of the induction programme by seniors who showed us on stage how to make one using GitHub. Although, they didn't tell much about GitHub, it didn't matter because I would've looked it up online anywy for more clarity of this unfamiliar website.
 The last part of the lectures was some sort of speech by Mrs. Harpreet Kaur, H.O.D. Applied Sciences who insisted upon making decorum in G.N.E. and rambled on and on about the same. It was quite hypocritic as when she was told about the cheating case in English and Maths tests the same day, she laughed upon it taking it on a lighter note marking the end of the session which was supposed to end about 1 hour 15 minutes before.
 All this marked the end of 2nd day in G.N.E.
+
+### Day- 05
+#### *9:30 to 11:30* **L̲i̲b̲r̲a̲r̲y̲**
+Day- 05 was basically just for I- card formation of my section, CSEA. Since my roll no. fell in the last 20s, I was told to sit in the library for the time until I was called in at 11:30 for the mentioned task.
+
+#### *11:30 to 12:30* **I̲D̲ ̲C̲a̲r̲d̲ ̲F̲o̲r̲m̲a̲t̲i̲o̲n̲**
+It was a task of just 10-15 minutes. When I went in, there were just last 6 -7 students remaining.
+
