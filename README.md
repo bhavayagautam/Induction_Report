@@ -1,7 +1,7 @@
 # <h2 align="center">INDUCTON REPORT</h2>
-### Day- 01
+### DAY- 01
 #### *8:30 am to 10 am* **S̲h̲a̲b̲a̲d̲ ̲K̲i̲r̲t̲a̲n̲**
-What a delightful and **soul**ful experience it was! As we all, students of Btech First Year from CS and IT Branches gathered in the religious place to seek blessings from the Almighty for a new phase of life. An immenseful period of time which passed as quickly as a silent gust even though it lasted half an hour longer than it was supposed to.
+What a delightful and **soul**ful experience it was! As the students of Btech First Year from CS and IT Branches gathered in the religious place to seek blessings from the Almighty for a new phase of life. An immenseful period of time which passed as quickly as a silent gust even though it lasted half an hour longer than it was supposed to.
 
 #### *10 am to 10:15 am* **T̲e̲a̲ ̲A̲n̲d̲ ̲S̲n̲a̲c̲k̲s̲**
 After Shabad Kirtan, all were headed right across the Gurdwara for some tea and snacks. It was supposed to last for 30 minutes but we were then asked to wrap it up under 15 minutes.
@@ -15,7 +15,7 @@ I really had to gobble up my food as we were told to report back after finally g
 #### *1:30 pm to 4 pm* **I̲n̲t̲r̲o̲d̲u̲c̲t̲i̲o̲n̲ ̲T̲o̲ ̲C̲l̲a̲s̲s̲e̲s̲**
 We were finally introduced to our class, some of the activity incharges who introduced and familiarised us to some concepts and norms of the college. The classrooms,quite modest in appearance sat about 40 students then with just windows and fans maintaining the cool atmosphere which was also aided by the rainy wind. We sat there for quite a while... Again longer than we were supposed to and finally, were discharged which marked the end of the first day of college.
 
-### Day- 02
+### DAY- 02
 #### *9:30 am to 10:30 am* **E̲n̲g̲l̲i̲s̲h̲ ̲P̲r̲o̲f̲i̲c̲i̲e̲n̲c̲y̲ ̲T̲e̲s̲t̲**
 The first test here at GNE about which we were informed a day before was conducted in class F-106 with a presence of about 30 students. The level was quite easy which justified its notice period for other students. We were given an hour to solve 5 questions- 2 of which were comprehension questions, 1 E-Mail and a Letter which were included in Secion- B (Writing Section) followed by some quite simple grammar questions.
 
@@ -32,22 +32,35 @@ After the session was over, we were asked to write a repository of the induction
 The last part of the lectures was some sort of speech by Mrs. Harpreet Kaur, H.O.D. Applied Sciences who insisted upon making decorum in G.N.E. and rambled on and on about the same. It was quite hypocritic as when she was told about the cheating case in English and Maths tests the same day, she laughed upon it taking it on a lighter note marking the end of the session which was supposed to end about 1 hour 15 minutes before.
 All this marked the end of 2nd day in G.N.E.
 
-### Day- 05
+### DAY- 05
 #### *9:30 to 11:30* **L̲i̲b̲r̲a̲r̲y̲**
 Day- 05 was basically just for I- card formation of my section, CSEA. Since my roll no. fell in the last 20s, I was told to sit in the library for the time until I was called in at 11:30 for the mentioned task.
 
 #### *11:30 to 12:30* **I̲D̲ ̲C̲a̲r̲d̲ ̲F̲o̲r̲m̲a̲t̲i̲o̲n̲**
 It was a task of just 10-15 minutes. When I went in, there were just last 6 -7 students remaining.
 
-### Day- 06
+### DAY- 06
 #### *9:30 am to 10:30 am* **C̲h̲e̲m̲i̲s̲t̲r̲y̲ ̲L̲e̲c̲t̲u̲r̲e̲**
 I finally got to be introduced to Mr. Karan Bhalla, my Chemistry professor who seemed to be a really kind and loving teacher. The way he motivated the students and guided them as if they were his own, really got to me. He asked students to introduce themselves after he introduced himself. He asked some basic questions from the students and even if some replied with an error, he took it to a positive note and encouraged them more until they finally get the real answer out of their mouth. One could easily tell that such types of teachers who support their students are whom the students confide in and adore. He explained the exam structure and later on took to teaching some basic topics of the first chapter, 'Water Chemistry'. 
 
 #### *10:30 am to 11:30 am* **E̲n̲g̲l̲i̲s̲h̲ ̲L̲e̲c̲t̲u̲r̲e̲**
-The next lecture was assigned to Mrs. Nisha, my English teacher I got to meet for the first time. She came in and introduced herself before taking the introduction of other students. She asked them to introduce themselves only in English so as to boost the confidence in the same language. Since many students got nervous or couldn't find the words to express themselves, it took a long time and some students didn't get the chance to introduce themselves and I was one of them.
+The next lecture was assigned to Mrs. Nisha, my English teacher I got to meet for the first time. She came in and introduced herself before taking the introduction of other students. She asked them to introduce themselves only in English so as to boost confidence in the same language. Since many students got nervous or couldn't find the words to express themselves, it took a long time and some students didn't get the chance to introduce themselves and I was one of them.
 
-#### 
+#### *12:30 pm to 4 pm*  **A̲u̲d̲i̲t̲o̲r̲i̲u̲m̲ ̲L̲e̲c̲t̲u̲r̲e̲s̲**
 Attended the lectures in auditorium.
 
-### Day- 06
-#### 
+### DAY- 07
+#### *9:30 am to 12:30 pm*  **A̲u̲d̲i̲t̲o̲r̲i̲u̲m̲ ̲L̲e̲c̲t̲u̲r̲e̲s̲**
+A 3 hours long session in the auditorium again lead by DR. Amit Kamra, Dr. Parminder Singh and Dr. Randhir Singh out of which the last one was the most important as there were rules and information regarding the conduction of exams in G.N.E. 
+
+#### *12:30 pm to 1:30 pm* **B̲r̲e̲a̲k̲**
+It was an hour long break which I spent in the library practicing some questions.
+
+#### *1:30 pm to 2:30 pm* **B̲E̲E̲E̲ ̲L̲e̲c̲t̲u̲r̲e̲**
+As I reached the M.E. Seminar Hall asking directions from the passer bys, I spotted one of my acquaintances from my school sitting there and went along the direction. We were later joined in by another schoolmate and talked a bit until the Professor arrived. She started with the Theory part- just some basic things and we jotted it down as she spoke.
+
+#### *2:30 pm to 3:30 pm* **M̲a̲t̲h̲s̲ ̲L̲e̲c̲t̲u̲r̲e̲**
+I was waiting for this lecture as Maths is my favourite subject but unfortunately, the teacherwas absent and so, there was no lecture. Some seniors took us to some other room and asked each of us to introduce ourselves. Other students laughed as the seniors joked but it was no fun for me as it was a complete waste of time. They wouldn't let anyone outside the room even though they did nothing productive and threatened to mark us absent if anyone left the room.
+
+
+### DAY- 08
