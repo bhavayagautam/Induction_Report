@@ -60,7 +60,11 @@ It was an hour long break which I spent in the library practicing some questions
 As I reached the M.E. Seminar Hall asking directions from the passer bys, I spotted one of my acquaintances from my school sitting there and went along the direction. We were later joined in by another schoolmate and talked a bit until the Professor arrived. She started with the Theory part- just some basic things and we jotted it down as she spoke.
 
 #### *2:30 pm to 3:30 pm* **M̲a̲t̲h̲s̲ ̲L̲e̲c̲t̲u̲r̲e̲**
-I was waiting for this lecture as Maths is my favourite subject but unfortunately, the teacherwas absent and so, there was no lecture. Some seniors took us to some other room and asked each of us to introduce ourselves. Other students laughed as the seniors joked but it was no fun for me as it was a complete waste of time. They wouldn't let anyone outside the room even though they did nothing productive and threatened to mark us absent if anyone left the room.
-
+I was waiting for this lecture as Maths is my favourite subject but unfortunately, the teacher was absent and so, there was no lecture. Some seniors took us to some other room and asked each of us to introduce ourselves. Other students laughed as the seniors joked but it was no fun for me as it was a complete waste of time. They wouldn't let anyone outside the room even though they did nothing productive and threatened to mark us absent if anyone left the room.
 
 ### DAY- 08
+#### *9 am to 10:30 am* **G̲u̲e̲s̲t̲ ̲L̲e̲c̲t̲u̲r̲e̲**
+It was an expert lecture by Mrs. Shaffy Makkar on 'Millets Super Food'. She shared some valuable information regarding these multigrains which deserve to be an inevitabe and indispensible part of human diet. It was quite an interactive session but I was waiting for Maths lecture which was the next.
+
+#### *10:30 am to 12 pm* **M̲a̲t̲h̲s̲ ̲L̲e̲c̲t̲u̲r̲e̲**
+Prof Gagandeep Kaur Lotey, Maths teacher of CSEA started talking aout infinity and talked about it for about half an hour after which she came onto talking about normal day-to-day things. I really wanted to study Maths but it's fine, at least the lecture began. It wasn't as good as I expected but I'll have to put up with such classes anyway.
