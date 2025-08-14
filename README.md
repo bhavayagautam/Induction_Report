@@ -33,17 +33,17 @@ The last part of the lectures was some sort of speech by Mrs. Harpreet Kaur, H.O
 All this marked the end of 2nd day in G.N.E.
 
 ### DAY- 03
-#### *9 am to 11 am*
+#### *9 am to 11 am* **L͟e͟c͟t͟u͟r͟e͟**
 It was a lecture again in auditorium delivered by Dr. Jaswinder Singh who is the incharge of IAPT.
 
-#### *11 am to 1 pm*
+#### *11 am to 1 pm* **L͟e͟c͟t͟u͟r͟e͟**
 A lecture delivered by Dr. Priya Darshni on 'Universal Human Values'.
 
 ### DAY- 04
-#### *9:30 am to 10:30 am*
+#### *9:30 am to 10:30 am* **P̲2̲P̲**
 The class was taken by two BTech CS students from 2nd and 3rd year. It had to be quite an interactive session as they were peers. So, it was quite easy to connect to them. They taught some basics on C++.
 
-#### *10:30 am to 11:30 am*
+#### *10:30 am to 11:30 am* **B͟E͟E͟E͟**
 An introductory session by Professor Harminder Kaur. Since it was the first class, so there was mainly introduction of students. She asked everyone to tell their names, strengths and weaknesses.
 
 ### DAY- 05
