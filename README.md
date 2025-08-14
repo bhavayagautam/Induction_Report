@@ -6,7 +6,7 @@ What a delightful and **soul**ful experience it was! As the students of Btech Fi
 #### *10 am to 10:15 am* **T̲e̲a̲ ̲A̲n̲d̲ ̲S̲n̲a̲c̲k̲s̲**
 After Shabad Kirtan, all were headed right across the Gurdwara for some tea and snacks. It was supposed to last for 30 minutes but we were then asked to wrap it up under 15 minutes.
 
-#### *10:15 am to 1"15 pm* **A̲u̲d̲i̲t̲o̲r̲i̲u̲m̲**
+#### *10:15 am to 1:15 pm* **A̲u̲d̲i̲t̲o̲r̲i̲u̲m̲**
 All the freshmen started moving toards the Auditorium where we were told to attend some speeches of supposed dignitaries. There used to be many guest lectures in my school and the auditorium speeched made by various guests appeared ike one except for the fact that all of them were delayed by half an hour or so. I am sure it must've been frustrating for some to wait for such long ideally and so was I at first, but I guess it wasn't such a big deal for college autorities after all as the students witnessed more delays in subsequent classes and lectures the following days.
 
 #### *1:15 pm to 1:30 pm* **B̲r̲e̲a̲k̲**
@@ -32,8 +32,22 @@ After the session was over, we were asked to write a repository of the induction
 The last part of the lectures was some sort of speech by Mrs. Harpreet Kaur, H.O.D. Applied Sciences who insisted upon making decorum in G.N.E. and rambled on and on about the same. It was quite hypocritic as when she was told about the cheating case in English and Maths tests the same day, she laughed upon it taking it on a lighter note marking the end of the session which was supposed to end about 1 hour 15 minutes before.
 All this marked the end of 2nd day in G.N.E.
 
+### DAY- 03
+#### *9 am to 11 am*
+It was a lecture again in auditorium delivered by Dr. Jaswinder Singh who is the incharge of IAPT.
+
+#### *11 am to 1 pm*
+A lecture delivered by Dr. Priya Darshni on 'Universal Human Values'.
+
+### DAY- 04
+#### *9:30 am to 10:30 am*
+The class was taken by two BTech CS students from 2nd and 3rd year. It had to be quite an interactive session as they were peers. So, it was quite easy to connect to them. They taught some basics on C++.
+
+#### *10:30 am to 11:30 am*
+An introductory session by Professor Harminder Kaur. Since it was the first class, so there was mainly introduction of students. She asked everyone to tell their names, strengths and weaknesses.
+
 ### DAY- 05
-#### *9:30 to 11:30* **L̲i̲b̲r̲a̲r̲y̲**
+#### *9:30 am to 11:30 am* **L̲i̲b̲r̲a̲r̲y̲**
 Day- 05 was basically just for I- card formation of my section, CSEA. Since my roll no. fell in the last 20s, I was told to sit in the library for the time until I was called in at 11:30 for the mentioned task.
 
 #### *11:30 to 12:30* **I̲D̲ ̲C̲a̲r̲d̲ ̲F̲o̲r̲m̲a̲t̲i̲o̲n̲**
